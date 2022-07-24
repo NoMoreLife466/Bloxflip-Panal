@@ -2,6 +2,8 @@
 ## You Don't Have To Login In
 ### Easy Menu To Use
 
+SAME AS RBLXWILD PANAL
+
 **Main**
 1- Bypass Message Timer
 2- Auto Send Your Affiliate Code In Chat
