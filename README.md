@@ -27,3 +27,5 @@ SAME AS RBLXWILD PANAL
 **Cases**
 1- Boost Single Case Luck 36%%
 2- Boost Wager 1000 Case Reward Luck 98%
+
+[Image](https://www.linkpicture.com/q/image-30-1.jpg)
